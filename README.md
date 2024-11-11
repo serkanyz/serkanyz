@@ -1,4 +1,5 @@
-- 👋 Hi, I’m Serkan YILDIZ
+- 👋 Hi, I’m Serkan.
 - 👀 https://www.Serkan.net
 - 👀 https://Teknoloji.Serkan.net
+- Serkan YILDIZ
 
